@@ -2,3 +2,5 @@
 ![](./tải%20xuống%20(22).jpg)
 ![](https://raw.githubusercontent.com/cryfatal/cryfatal/main/heart.gif)
 ![](https://raw.githubusercontent.com/cryfatal/TÊN_REPOSITORY/main/t%E1%BA%A3i%20xu%E1%BB%91ng%20(22).jpg)
+![](https://raw.githubusercontent.com/cryfatal/cryfatal/main/heart.gif)
+![](https://raw.githubusercontent.com/cryfatal/cryfatal/main/t%E1%BA%A3i%20xu%E1%BB%91ng%20(22).jpg)
